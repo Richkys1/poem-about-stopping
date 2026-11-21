@@ -18,8 +18,8 @@ Not broken. Not afraid.
 Only mine again.
 
 Stopping is not the absence
-of going. It is the hand
-choosing its own weight.
+of going. It is the door,
+staying open on purpose.
 """
 
 
